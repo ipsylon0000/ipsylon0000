@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ipsylon0000
+- 👀 I’m interested in game development
+- 🌱 I’m currently learning Unity
+- 💞️ I’m looking to collaborate on love and happiness
+- 📫 How to reach me: no.
